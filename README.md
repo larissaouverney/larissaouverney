@@ -1,4 +1,4 @@
-✨*Oi! Me chamo **Larissa Ouverney** {ela/dela}, tenho 24 anos e atualmente estudo **Design Gráfico** pela **UNINTER** e quero me especializar em **Design UX/UI**.*
-- 🌱 *Atualmente estou estudando Design UX/UI*
+✨*Oi! Me chamo **Larissa Ouverney** {ela/dela}, tenho 27 anos, sou UX/UI Designer e cursando o último período de **Design UX** pela **UNICARIOCA**.*
+- 🌱 *Curiosa, estou buscando aprender mais sobre desenvolvimento*
 
 
